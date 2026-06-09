@@ -1,4 +1,4 @@
-#  
+#  Experience restaurant tycoon 3 like never before with no-ban Scripts for restaurant tycoon 3, the #1 Script. Includes aimbot and no cooldown for
 
 
 
